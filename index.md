@@ -13,3 +13,9 @@ So kommt es, dass sich Blair in Chuck Bass verliebt.
 * gibt gerne Partys
 * trägt Designerklamotten
 * Dorotha
+
+
+
+Wie Blair zu Chuck sagte:
+
+> 3 words, 8 letters, say it and I'm yours.
