@@ -19,3 +19,5 @@ So kommt es, dass sich Blair in Chuck Bass verliebt.
 Wie Blair zu Chuck sagte:
 
 > 3 words, 8 letters, say it and I'm yours.
+
+<img src="https://lh4.googleusercontent.com/t2I_eCIS3tw63aIcuk7giI9huWG_Jma-TqFAt1BSpyC8Z3jkukjdr5ToImHAm3Hba3nFxojmbVw0ShwDPUZHyycpbpGylFDRzgjceE5itxtg85MZXeEnRzRESdrrqIKhuAQdJCHLSSYuqmvuCw"/>
