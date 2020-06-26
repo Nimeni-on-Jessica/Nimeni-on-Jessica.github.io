@@ -6,9 +6,9 @@ Innerhalb ihrer Clique haben die Jungendlichen mit Problemen zu kämpfen und nat
 So kommt es, dass sich Blair in Chuck Bass verliebt.
 
 ## Charaktereigenschaften
-- liebt Haarbänder
-- verliebt in Chuck
-- Queen ihrer Clique
-- gibt gerne Partys
-- trägt Designerklamotten
-- Dorotha
+liebt Haarbänder
+verliebt in Chuck
+Queen ihrer Clique
+gibt gerne Partys
+trägt Designerklamotten
+Dorotha
